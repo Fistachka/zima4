@@ -41,4 +41,8 @@ A iz okon parok sinij-sinij!
 Previous lesson:
 ![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/0d566f66-3780-4248-8238-c5920d25afdb =200x200)
 stolbitsa.com/fistachka/zima<br><br>
+![з7](https://github.com/user-attachments/assets/a4a0deba-3dee-4a02-b176-adbcdd207542)
+![з8](https://github.com/user-attachments/assets/d791be38-7a9f-4a23-84a1-5bcc7eb8d4ae)
+
+
 
